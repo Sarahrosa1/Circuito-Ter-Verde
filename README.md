@@ -1,1 +1,1 @@
-# Circuito-Ter-Verde
+# Circuito-Terê-Verde
